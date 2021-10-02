@@ -11,3 +11,6 @@ More about me now:
 > I don't like to socially interact.
 
 Anyway thats it for today.
+
+Stats in case you asked.
+https://imgur.com/xavMWq1
