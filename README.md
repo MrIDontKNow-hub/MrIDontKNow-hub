@@ -14,4 +14,4 @@ Anyway thats it for today.
 
 Stats in case you asked.
 
-/show https://imgur.com/xavMWq1
+https://imgur.com/xavMWq1
